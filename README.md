@@ -1,1 +1,0 @@
-# auto_ins_fr
